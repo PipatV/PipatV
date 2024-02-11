@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **เกมดี League of Legends**
 
-![Uploading tumblr_7c07fb322d99585d401508ae28b549d1_0124ebe6_640.gif…]()
+
   
 
 <h3 align="left">Connect with me:</h3>
